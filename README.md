@@ -10,7 +10,5 @@
 claudiobonimazzini@gmail.com 
 
 
-
-
-![](https://tenor.com/pt-BR/view/funny-dance-undertale-sans-gif-26048955)
+![](https://media1.tenor.com/m/SmuhDZFnBo8AAAAd/vagabond-musashimyiamoto.gif)
 
